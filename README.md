@@ -1,6 +1,4 @@
+## En defensa de la Universidad Pública
 
-
-## example
-
-TODO
+Presionar la barra espaciadora para terminar
 
